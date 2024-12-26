@@ -1,4 +1,4 @@
-# praktika
+# фото
 https://github.com/user-attachments/assets/4d2acd87-b32e-4971-a2ee-b7ca130de453
 
 ![2024-12-26_22-05-25](https://github.com/user-attachments/assets/1cdcc6a9-0e4b-48b3-ac5f-13fa69b0bd84)
